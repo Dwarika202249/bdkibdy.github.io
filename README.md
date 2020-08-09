@@ -1,1 +1,0 @@
-# bdkibdy.github.io
